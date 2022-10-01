@@ -1,5 +1,21 @@
 # Series 21
 
+## Series 21, Card 25 - PEPEANDY
+
+<figure><img src="../../../.gitbook/assets/S21 C25 - PEPEANDY card and source.png" alt=""><figcaption></figcaption></figure>
+
+**Series 21, Card 25** - [PEPEANDY](https://pepe.wtf/asset/PEPEANDY) was created by an [unknown artist](https://pepe.wtf/artists/1LHPw5hFTr8NYkE86b3F11y7vnBhmpJrts). They created the five card "Pepe the Forbidden One" set, six other portrait Rare Pepe cards similar to this one, and two transportation cards.
+
+The Andy pictured here is [Andy Weissman](https://www.usv.com/people/andy-weissman/) a Managing Partner at [Union Square Ventures](https://www.usv.com/). USV [invests heavily in the crypto industry](https://www.theblock.co/linked/92652/union-square-ventures-crypto-2021-fund).
+
+## Series 21, Card 26 - DUMMIES
+
+<figure><img src="../../../.gitbook/assets/S21 C26 - DUMMIES card and source.jpg" alt=""><figcaption></figcaption></figure>
+
+**Series 21, Card 26** - [DUMMIES](https://pepe.wtf/asset/DUMMIES) was created by the artist known as [Finest Rares](https://pepe.wtf/artists/Finest-Rares). He created a total of 18 cards for the Rare Pepe series including the two card "Baby Series" ([TUBBIES](https://pepe.wtf/asset/TUBBIES) and [PEPEPAMPERS](https://pepe.wtf/asset/PEPEPAMPERS)).&#x20;
+
+This card is a parody of the [For Dummies series of books](https://en.wikipedia.org/wiki/For\_Dummies). The first book in the series was DOS For Dummies which was published in late 1991.&#x20;
+
 ## Series 21, Card 41 - MUNETOPEPE
 
 ![](<../../../.gitbook/assets/S21 C41 - MUNETOPEPE source and card.jpg>)
